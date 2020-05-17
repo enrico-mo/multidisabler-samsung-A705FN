@@ -1,0 +1,1 @@
+# multidisabler-samsung-A705FN
